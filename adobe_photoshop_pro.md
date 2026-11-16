@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Download-FF1744?style=for-the-badge&logo=github)](https://bit.ly/4f2mQ5z)
+[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Download-FF1744?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
@@ -59,7 +59,7 @@
 
 <div align="center">
 
-[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Download-FF1744?style=for-the-badge&logo=github)](https://bit.ly/4f2mQ5z)
+[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Download-FF1744?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
@@ -159,7 +159,7 @@ A: Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Get%20It%20Here-FF1744?style=for-the-badge&logo=github)](https://bit.ly/4f2mQ5z)
+[![Download Adobe Photoshop Pro](https://img.shields.io/badge/Get%20It%20Here-FF1744?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
