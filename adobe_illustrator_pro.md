@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4vPJzJi)
+[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
@@ -162,7 +162,7 @@
 
 <div align="center">
 
-[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4vPJzJi)
+[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
@@ -249,7 +249,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/4vPJzJi)
+[![Download Adobe Illustrator Pro](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://share.google/MOC0SsHk0RcuIH7gt)
 
 </div>
 
